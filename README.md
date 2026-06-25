@@ -3,3 +3,5 @@ hi ! my name is tanner and this is literally my first thingy on github that isnt
 anyways uhmm thank you to the people that supported ME and understood that i did not admit to having a 'pedophiliac disorder' i admited to ocd. i admited something that i hid for YEARS. i'm coming to terms with myself and i would appreciate if anyone who says i'm just hiding under that label to hide being a predator and a groomer to please edcuate yourself. this disorder changes my life for the WORSE. I can't talk to anyone under the age of 16 without feeling like a piece of shit who deserves a fucking death sentence and harrasment. 
 
 moral of my story, stop believing anything you read and listen to on the internet because you don't know how much of it is false. love you guys!
+
+ps dont harass me, asriel or anyone else involved. i keep getting harassment in my strawpage and i wont hesitate to stop deleting it so everyone is aware of how heartless you guys all are oh my GOD
