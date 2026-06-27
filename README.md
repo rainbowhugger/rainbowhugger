@@ -5,3 +5,5 @@ anyways uhmm thank you to the people that supported ME and understood that i did
 moral of my story, stop believing anything you read and listen to on the internet because you don't know how much of it is false. love you guys!
 
 ps dont harass me, asriel or anyone else involved. i keep getting harassment in my strawpage and i wont hesitate to stop deleting it so everyone is aware of how heartless you guys all are oh my GOD
+
+edit : i am not racist, there is zero proof that i am racist. all racism allegations agaisnt me are false. i can show dms and you can ask the people i talk to if i've done anything racist. (i havent). if you guys are going to FORCE ME to communicate through someone else, atleast have accurate information. with this being said, my discord is rainbowhugger if anyone needs to contact me.
