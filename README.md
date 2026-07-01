@@ -8,7 +8,8 @@ the owner of 7R is spreading fake allegations about me that im going to adress h
 3.  no one communicated with me, its not my fault i made them uncomfortable or broke their boundaries when i DIDNT KNOW their boundaries and they never SAID THEY WERE UNCOMFORTABLE
 4. im going to speak bad about 7r when they used my MESSAGES FROM AN EPISODE agaisnt ME and MAKING SHIT UP ABOUT ME JUST TO GET ME HARASSED.
 8. theyre making shit up, i wasnt lying about why they banned me. theyre banning me for complete bullshit.
-9. i never fucking lied about my sucide attempt. i dont know why theyre saying i fucking faked my suicide attempt but theyre fucked up in the head for this. 
+9. i never fucking lied about my sucide attempt. i dont know why theyre saying i fucking faked my suicide attempt but theyre fucked up in the head for this.
+   
 all in all, 7r is making shit up for fun at this point and its getting me banned from multiple regiments and having my friends block me.
 
 this is tanner signing off. thank you to all the people who supported me and who were my friends.
