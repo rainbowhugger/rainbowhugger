@@ -2,7 +2,7 @@ hi ! my name is 坦纳 and this is my saying that the situation between me and a
 
 anything else said to me or anyone else about this situation is considered harassment. 
 
-all allegations made based on the situation are false and have zero proof of being true.
+all allegations made based on the situation are false and have zero proof of being true + are harassment.
 
 i was never racist, i am not a groomer, i am not a pedophile.
 
