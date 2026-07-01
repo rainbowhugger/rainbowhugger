@@ -1,9 +1,14 @@
-hi ! my name is 坦纳 and this is literally my first thingy on github that isnt a link. i'm addressing the situation and stuff like hey guys this situation with asriel is OVER. we have solved it. we BOTH apologized since it was due on BOTH ENDS. i am not keith, i am not a uni stealer and I AM NOT A PREDATOR. pocd does not mean i am a predator. 
+hi ! my name is 坦纳 and i am killing myself because of the owners of ESm and 7R and other regiments who i wont name. they have harassed me nonstop and made my friend block me. i have set my atabook to read only and deleted the harassment that i knew was from ESm and 7R. 
 
-anyways uhmm thank you to the people that supported ME and understood that i did not admit to having a 'pedophiliac disorder' i admited to ocd. i admited something that i hid for YEARS. i'm coming to terms with myself and i would appreciate if anyone who says i'm just hiding under that label to hide being a predator and a groomer to please edcuate yourself. this disorder changes my life for the WORSE. I can't talk to anyone under the age of 16 without feeling like a piece of shit who deserves a fucking death sentence and harrasment. 
+I had a situation with someone named Asriel, which the situation was apologized for on both ends and has ended. this is what the owners of ESm and 7R are harassing me for.
 
-moral of my story, stop believing anything you read and listen to on the internet because you don't know how much of it is false. love you guys!
+the owner of 7R is spreading fake allegations about me that im going to adress here.
+1. i was NEVER racist. theres ZERO proof that i was racist. they are making shit up for fun and because they dont like me or something.
+2. i didnt THREATEN to leak ANYONES ip address. i leaked someones APPROX LOCATION because they sent me a fucking DEATH THREAT then i deleted it SOON AFTER
+3.  no one communicated with me, its not my fault i made them uncomfortable or broke their boundaries when i DIDNT KNOW their boundaries and they never SAID THEY WERE UNCOMFORTABLE
+4. im going to speak bad about 7r when they used my MESSAGES FROM AN EPISODE agaisnt ME and MAKING SHIT UP ABOUT ME JUST TO GET ME HARASSED.
+8. theyre making shit up, i wasnt lying about why they banned me. theyre banning me for complete bullshit.
+9. i never fucking lied about my sucide attempt. i dont know why theyre saying i fucking faked my suicide attempt but theyre fucked up in the head for this. 
+all in all, 7r is making shit up for fun at this point and its getting me banned from multiple regiments and having my friends block me.
 
-ps dont harass me, asriel or anyone else involved. i keep getting harassment in my strawpage and i wont hesitate to stop deleting it so everyone is aware of how heartless you guys all are oh my GOD
-
-edit : i am not racist, there is zero proof that i am racist. all racism allegations agaisnt me are false. i can show dms and you can ask the people i talk to if i've done anything racist. (i havent). if you guys are going to FORCE ME to communicate through someone else, atleast have accurate information. with this being said, my discord is rainbowhugger if anyone needs to contact me.
+this is tanner signing off. thank you to all the people who supported me and who were my friends.
